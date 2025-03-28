@@ -7,7 +7,7 @@
 
 - 💬 Ask me about **WevDev, UI/UX and Digital Content Creation**
 
-- 📫 Reach me on WhatsApp or Telegram : **+94752999464**
+- 📫 Reach me on WhatsApp or Telegram : **+94778481105**
 
 - 📄 Know about my experiences [https://www.fiverr.com/anabayan](https://www.fiverr.com/anabayan) , [https://www.upwork.com/freelancers/~0141b99449f769937d?s=1110580755107926016](https://www.upwork.com/freelancers/~0141b99449f769937d?s=1110580755107926016)
 
