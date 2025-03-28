@@ -1,7 +1,7 @@
 <h1 align="center">Hi 👋, I'm Madushan</h1>
 <h3 align="center">A passionate full-stack web developer from Sri Lanka</h3>
 
-- 🌱 I’m currently learning **3D Rendering**
+- 𖢻 I’m currently learning **Blockchain Development**
 
 - 👨‍💻 All of my projects are available at [https://www.upwork.com/freelancers/~0141b99449f769937d?s=1110580755107926016](https://www.upwork.com/freelancers/~0141b99449f769937d?s=1110580755107926016)
 
